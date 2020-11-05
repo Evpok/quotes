@@ -41,4 +41,7 @@ Les citations que MAB n'hébergera pas.
 - « Il a pas l'air bien méchant avec sa machette ! »
 - « l'Auvergne c'est perdu au milieu de l'Auvergne »
 - « They're going to have to pry my flesh out of my cold dead hands »
+- « C'est vraiment la sémantique du père Castor »
+- « *very Diogenes voice* “this is a man” »
+
 
