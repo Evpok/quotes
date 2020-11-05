@@ -10,7 +10,7 @@ Les citations que MAB n'hébergera pas.
 - « Ça m'est déjà arrivé de frapper des gens avec ma cravache »
 - « Il est 9h22 et on commence déjà à parler de testicules »
 - — Attention, j'ai un gros sac
-- — Vantard
+  — Vantard
 - « Nous les phonéticiens, on aime bien mettre des trucs dans les orifices des gens »
 - « Si tu rates ton coup avec l'angle ça fait trop mal »
 - « Analyse de sent...pinion »
